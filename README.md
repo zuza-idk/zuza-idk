@@ -5,7 +5,7 @@
 - 📫 How to reach me reach out via pintrest or email
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: im polish 🇵🇱 
-Im crazy and I also stan joost klein
-  -I hope to study game making and animation later in life (when i go to college)  
+- Im crazy and I also stan joost klein
+- I hope to study game making and animation later in life (when i go to college)  
 
 
